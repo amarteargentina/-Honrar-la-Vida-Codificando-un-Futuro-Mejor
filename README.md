@@ -1,1 +1,1 @@
-# -Honrar-la-Vida-Codificando-un-Futuro-Mejor
+"En Villa La Cárcova, Amarte Argentina utiliza la educación como herramienta de cambio. El programa “Honrar la Vida” combina educación académica y emocional, preparando a los jóvenes para un futuro lleno de oportunidades."
